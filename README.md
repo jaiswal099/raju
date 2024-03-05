@@ -1,0 +1,2 @@
+# raju
+love trading
